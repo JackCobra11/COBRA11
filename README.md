@@ -2,7 +2,7 @@
 ## [Shoujo_Stay Night](https://jackcobra11.github.io/%E6%9C%AC%E5%AD%90/Shoujo_staynight.html)
 ![1.jpg](https://jackcobra11.github.io/%E6%9C%AC%E5%AD%90/Shoujo_stay%20night%20-%20Page%201%20%C2%BB%20nhentai_%20hentai%20doujinshi%20and%20manga_files/1.jpg)
 
-## [[ジンギスカンの玉葱は俺の嫁 (谷口さん)] 君-ジャンヌ・ダルク-になる 2.0]]
+## [[ジンギスカンの玉葱は俺の嫁 (谷口さん)] 君-ジャンヌ・ダルク-になる 2.0]](https://jackcobra11.github.io/%E6%9C%AC%E5%AD%90/%5BDschinghis%20Khan%20no%20Tamanegi%20wa%20Ore%20no%20Yome%20(Taniguchi-san)%5D%20Kimi%20-Jeanne%20d'Arc-%20ni%20Naru%202.0/)
 ![1.jpg](https://raw.githubusercontent.com/JackCobra11/COBRA11/master/%5BDschinghis%20Khan%20no%20Tamanegi%20wa%20Ore%20no%20Yome%20(Taniguchi-san)%5D%20Kimi%20-Jeanne%20d'Arc-%20ni%20Naru%202.0%20(FateGrand%20Order)/1.jpg)
 
 ## [[こんにゃく] おねしょた和希先輩](https://jackcobra11.github.io/%E6%9C%AC%E5%AD%90/%5B%E3%81%93%E3%82%93%E3%81%AB%E3%82%83%E3%81%8F%5D%20%E3%81%8A%E3%81%AD%E3%81%97%E3%82%87%E3%81%9F%E5%92%8C%E5%B8%8C%E5%85%88%E8%BC%A9/)
